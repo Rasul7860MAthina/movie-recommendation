@@ -1,0 +1,2 @@
+# movie-recommendation-
+In a near-future world seamlessly integrated with intelligent technology, a lonely writer forms a deep emotional bond with his operating system—an evolving artificial intelligence designed to meet his every need. As the line between machine and human blurs, Her explores love, consciousness, and the existential ache of connection in a hyper-digitized age. This film is a poetic meditation on how we seek meaning in an era when technology listens better than people do.
